@@ -7,6 +7,8 @@
 
 - 👯 I’m looking to collaborate on **AI anf Full stack projects**
 
+- 👨‍💻 All of my projects are available at [portfolio-peach-seven-tl2o1e7lg0.vercel.app](portfolio-peach-seven-tl2o1e7lg0.vercel.app)
+
 - 📫 How to reach me **farheenshaukat58@gmail.com**
 
 - ⚡ Fun fact **SO smart and creative**
